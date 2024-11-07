@@ -1,1 +1,0 @@
-# Amozon_static_page
